@@ -15,4 +15,5 @@ Additionally, I had the opportunity to work as a Certification support for HGS, 
 
 Overall, I bring a diverse skill set, a passion for data analysis, and a proven track record of delivering successful projects. I am excited to apply my expertise and contribute to an Analyst role within your organization.
 
-# LinkedIn: https://www.linkedin.com/in/karishma-grover/
+# LinkedIn: 
+https://www.linkedin.com/in/karishma-grover/
